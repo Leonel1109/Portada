@@ -4,4 +4,4 @@ regional de San Rafael.
 
 En estos años de cursado hemos aprendido y trabajamos con los siguientes lenguajes: Python, Java, JavaScript
 
-
+ ⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐⭐
